@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @vishruthmohan
+- 📫 reach me at visuruthmohan@gmail.com
+- Always belived that "1 day" I will be an entrepreneur. But never worked for it.
+- To a new start. Countdown starts today (02-05-2021[d%-m%-Y%])
+- Taming python to crawl up stairs, where stairs never ends.
